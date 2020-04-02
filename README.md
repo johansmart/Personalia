@@ -1,2 +1,35 @@
 # Personalia3-jh-190628
- software penggajian dan payroll
+ software penggajian dan payroll - https://johansoft.com/jual-software-payroll/
+ 
+ <div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Jual software payroll – perkembangan dunia industri menjadi sesuatu yang patutnya diperhatikan. Betapa tidak, kian hari perkembangan industri kian maju, kian berkembang. Hal itu terlihat dari banyaknya industri yang menjamur di tiap daerah di Indonesia. Malah bukan Cuma banyak, sekarang, jumlahnya bisa dibilang tak terhitung. Bentuknya beragam, kapasitasnya pun beragam, ada industri kecil dan ada industri besar.</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Ya, karena kebutuhan akan produk, pabrik menjadi sesuatu yang diharuskan, terlebih kepentingannya untuk memenuhi kebutuhan produk.</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Bukan hanya memproduksi produk, beberapa pabrik pun kian melek IT, mereka bahkan menggunakan peranti khusus untuk meningkatkan kinerja perusahaan. Satu dari sekian peranti yang umum mereka gunakan adalah software payroll</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Kami sendiri jual software payroll yang sama, yang banyak digunakan oleh sebagian besar pabrik maju di Indonesia.</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Peranti ini mengandung modul dan fitur yang mumpuni, modul dan fitur yang dapat meningkatkan efektivitas kerja perusahaan, khususnya di bidang payroll. Pelaku bisnis ini bahkan dapat melakukan pekerjaan dengan lebih efektif. Mereka hanya perlu melakukan SOP sebagaimana biasanya dengan melibatkan software ini di dalamnya.</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Simak produk lainnya di sini :</div>
+<ul style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+<li style="box-sizing: border-box;"><a href="https://johansoft.com/software-farmasi/" style="border: none; box-sizing: border-box; outline: none; text-decoration-line: none;" title="Jual Software Farmasi untuk Apotek dan Rumah Sakit">Jual Software Farmasi untuk Apotek dan Rumah Sakit</a></li>
+<li style="box-sizing: border-box;"><a href="https://johansoft.com/software-ekspedisi/" style="border: none; box-sizing: border-box; outline: none; text-decoration-line: none;" title="Jual Software Ekspedisi untuk Peningkatan Usaha Ekspedisi Anda!">Jual Software Ekspedisi untuk Peningkatan Usaha&nbsp;</a></li>
+<li style="box-sizing: border-box;"><a href="https://johansoft.com/jual-software-travel/" style="border: none; box-sizing: border-box; outline: none; text-decoration-line: none;" title="Jual Software Travel yang Berkualitas dengan Harga Bersaing">Jual Software Travel yang Berkualitas dengan Harga&nbsp;</a></li>
+</ul>
+<h4 style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+<strong style="box-sizing: border-box;">Kami Jual Software Payroll dengan Modul dan Fitur Mumpuni</strong></h4>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Selayaknya memenuhi kebutuhan pengguna, software yang kami jual memenuhi kebutuhan pengguna melalui fitur dan modul yang dimilikinya. Keduanya memiliki peran vital dalam operasional dan peningkatan bisnis. Melalui keduanya juga bisnis akan dijalankan dengan praktis dan efektif.</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Untuk lebih jelas mengenai modul, fitur dan fasilitas produk kami, Anda bisa simak ulasan singkatnya berikut.</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Modul Karyawan :<br style="box-sizing: border-box;" />Agama<br style="box-sizing: border-box;" />Pendidikan<br style="box-sizing: border-box;" />Bagian<br style="box-sizing: border-box;" />Jabatan<br style="box-sizing: border-box;" />Department<br style="box-sizing: border-box;" />Hari kerja<br style="box-sizing: border-box;" />Jenis jam kerja<br style="box-sizing: border-box;" />Jam kerja<br style="box-sizing: border-box;" />Karyawan<br style="box-sizing: border-box;" />Kontark kerja<br style="box-sizing: border-box;" />Laporan<br style="box-sizing: border-box;" />Daftar karyawan<br style="box-sizing: border-box;" />Modul Presensi</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+Absen / cuti<br style="box-sizing: border-box;" />Impor presensi<br style="box-sizing: border-box;" />Presensi karyawan<br style="box-sizing: border-box;" />Presensi manual<br style="box-sizing: border-box;" />Process presensi<br style="box-sizing: border-box;" />Laporan<br style="box-sizing: border-box;" />Modul Penggajian :</div>
+<div style="background-color: white; box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px;">
+komponen gaji<br style="box-sizing: border-box;" />pph 21<br style="box-sizing: border-box;" />PTKP<br style="box-sizing: border-box;" />Seting gaji<br style="box-sizing: border-box;" />Posting gaji<br style="box-sizing: border-box;" />Laporan<br style="box-sizing: border-box;" />MOdul Setup :<br style="box-sizing: border-box;" />user<br style="box-sizing: border-box;" />options<br style="box-sizing: border-box;" />profil<br style="box-sizing: border-box;" />reset<br style="box-sizing: border-box;" />backup<br style="box-sizing: border-box;" />restore</div>
+<div class="meta_tags" style="background-color: white; border-top: 1px dotted rgb(221, 221, 221); box-sizing: border-box; color: #616161; font-family: &quot;Open Sans&quot;, sans-serif; font-size: 13px; padding-top: 5px;">
+Tag:&nbsp;<a href="https://johansoft.com/tag/software-gaji/" rel="tag" style="border: none; box-sizing: border-box; outline: none; text-decoration-line: none;">software gaji</a>,&nbsp;<a href="https://johansoft.com/tag/software-payrol/" rel="tag" style="border: none; box-sizing: border-box; outline: none; text-decoration-line: none;">software payrol</a>,&nbsp;<a href="https://johansoft.com/tag/software-penggajian/" rel="tag" style="border: none; box-sizing: border-box; outline: none; text-decoration-line: none;">software penggajian</a></div>
+
